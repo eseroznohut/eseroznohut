@@ -7,4 +7,4 @@ welcome to my professional hobby area<br><br>
 
 and<br>
 <br>
-🌅🐬 I also love watching dolphins.
+🐬 I also love watching dolphins.
