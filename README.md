@@ -4,7 +4,5 @@ welcome to my professional hobby area<br><br>
 🚚 learning to drive a truck.<br>
 🚢 working on ship cruise tracking systems.<br>
 
-
 and<br>
-<br>
-🐬 I also love watching dolphins.
+🐬 I love watching dolphins.
